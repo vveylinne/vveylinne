@@ -1,16 +1,36 @@
-## Hi there 👋
+<p align="center">
+<img src="https://i.postimg.cc/65XF6nwk/IMG-9350.png" width="500px"/> 
+ 
+  
+       
+  
 
-<!--
-**vveylinne/vveylinne** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<p align="center">
+ 𝒱℮𝑖𝓁𝑦ꪀ℮    ⟣    𝘴ℎ℮/𝘩℮𝑟    ⟣    ISTP‎ 
+   
+  
+       
+  
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=arjunsingh27&label=‹𝟹&color=e6e6e6&style=flat" alt="arjunsingh27" /> </p>
+ 
+  
+       
+  
+
+
+
+<p align="center">
+<a href="https://rentry.co/depressantdivs?utm_source=Pinterest&utm_medium=organic">Rentry</a>    ⟣    <a href="https://rentry.co/depressantdivs?utm_source=Pinterest&utm_medium=organic">Ata</a>    ⟣    <a href="https://rentry.co/depressantdivs?utm_source=Pinterest&utm_medium=organic">Straw</a>
+  
+  
+       
+  
+
+
+
+<p align="center">
+<img src="https://i.postimg.cc/7YJrbwTz/IMG-9349.png" width="500px"/> 
+

@@ -1,5 +1,5 @@
-<p align="center">
-<img src="https://i.postimg.cc/mgXMjbHb/image-2024-05-26-153715140.png" width="500px"/> 
+<p align="center"><img src="https://i.postimg.cc/RhHX5WwQ/image-2024-05-26-153638430.png" width="500px"/> 
+ 
  
   
        
@@ -32,7 +32,7 @@
 
 
 <p align="center">
-<img src="https://i.postimg.cc/RhHX5WwQ/image-2024-05-26-153638430.png" width="500px"/> 
+<img src="https://i.postimg.cc/mgXMjbHb/image-2024-05-26-153715140.png" width="500px"/>
   
   
        

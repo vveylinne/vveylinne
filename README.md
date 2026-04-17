@@ -14,7 +14,7 @@
   
 
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=arjunsingh27&label=‹𝟹&color=e6e6e6&style=flat" alt="arjunsingh27"/> </p>
+<p align="center"><img src="https://komarev.com/ghpvc/?username=arjunsingh27&label=‹𝟹&color=e6e6e6&style=flat" alt="arjunsingh27"/> </p>
  
   
        
@@ -31,7 +31,7 @@
 
 
 
-<p align="center"><img width="500" height="257" alt="110 sin título_20260416023526" src="https://github.com/user-attachments/assets/2a93afd6-a1c7-464d-844c-17302616cf21" />
+<p align="center"><img width="500" height="120" alt="110 sin título_20260416023526" src="https://github.com/user-attachments/assets/2a93afd6-a1c7-464d-844c-17302616cf21"/>
 
   
   
@@ -68,4 +68,4 @@
 
 
 <p align="center">
-<img width="200" height="498" alt="opNp7pcR" src="https://github.com/user-attachments/assets/55077dd0-cf3f-4953-a44b-8d720d3ed297" />
+<img width="200" height="200" alt="opNp7pcR" src="https://github.com/user-attachments/assets/55077dd0-cf3f-4953-a44b-8d720d3ed297"/>

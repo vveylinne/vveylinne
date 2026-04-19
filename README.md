@@ -30,15 +30,7 @@
   
 
 
-
-<p align="center"><img width="500" height="120" alt="110 sin título_20260416023526" src="https://github.com/user-attachments/assets/2a93afd6-a1c7-464d-844c-17302616cf21"/>
-
-  
-  
-       
-  
-
-
+<p align="center"><img src="https://media.discordapp.net/attachments/1459606539718492234/1495551226501140601/114_sin_titulo_20260422192532.png?ex=69e6a81e&is=69e5569e&hm=82de56dbeadc65d9d23c53bc63f6ea2c485be61f99649c52971e9cc5a130aad0&=&format=webp&quality=lossless&width=1600&height=321" width="500px"/> 
 
 
   
@@ -49,8 +41,14 @@
 
 
 
-<p align="center">
-<img src="https://i.postimg.cc/Hkq6SNZw/image-2024-05-23-224600749.png" width="500px"/> 
+  
+  
+       
+  
+
+
+
+
   
   
        

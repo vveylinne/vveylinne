@@ -23,7 +23,7 @@
 
 
 <p align="center">
-<a href="https://rentry.co/depressantdivs?utm_source=Pinterest&utm_medium=organic">Rentry</a>    ⟣    <a href="https://rentry.co/depressantdivs?utm_source=Pinterest&utm_medium=organic">Ata</a>    ⟣    <a href="https://rentry.co/depressantdivs?utm_source=Pinterest&utm_medium=organic">Straw</a>
+<a href="https://veilynneee.straw.page/">Rentry</a>    ⟣    <a href="https://veilynneee.straw.page/">Ata</a>    ⟣    <a href="https://veilynneee.straw.page/">Straw</a>
   
   
        

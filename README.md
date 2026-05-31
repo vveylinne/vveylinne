@@ -30,13 +30,7 @@
   
 
 
-
-  
-  
-       
-  
-
-
+<p align="center"><img src="https://neckdoll.zombie.jp/material/line/tsuta2/line-tsuta01.gif" width="500px"/> 
 
 
   
@@ -63,5 +57,13 @@
 
 
 
-<p align="center">
-<img width="200" height="200" alt="opNp7pcR" src="https://github.com/user-attachments/assets/55077dd0-cf3f-4953-a44b-8d720d3ed297"/>
+  
+  
+       
+  
+
+
+
+
+
+

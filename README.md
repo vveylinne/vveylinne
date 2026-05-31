@@ -30,8 +30,6 @@
   
 
 
-<p align="center"><img src="https://neckdoll.zombie.jp/material/line/tsuta2/line-tsuta01.gif" width="500px"/> 
-
 
   
   

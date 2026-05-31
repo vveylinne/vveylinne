@@ -1,4 +1,4 @@
-<p align="center"><img src="https://i.postimg.cc/kMfcFxLv/IMG-1071.png" width="500px"/> 
+<p align="center"><img src="https://files.catbox.moe/wqrhln.gif" width="500px"/> 
  
  
   
@@ -14,7 +14,7 @@
   
 
 
-<p align="center"><img src="https://komarev.com/ghpvc/?username=arjunsingh27&label=‹𝟹&color=e6e6e6&style=flat" alt="arjunsingh27"/> </p>
+<p align="center"><img src="https://komarev.com/ghpvc/?username=arjunsingh27&label=‹𝟹&color=3b3b3b&style=flat" alt="arjunsingh27"/> </p>
  
   
        
@@ -30,7 +30,7 @@
   
 
 
-<p align="center"><img src="https://i.postimg.cc/Ghfx6bLB/IMG-1070.png" width="500px"/> 
+<p align="center"><img src="https://neckdoll.zombie.jp/material/line/tsuta2/line-tsuta01.gif" width="500px"/> 
 
 
   

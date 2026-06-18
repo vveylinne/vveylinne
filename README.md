@@ -35,7 +35,7 @@
 
 
 
-<p align="center"><img src="https://files.catbox.moe/wqrhln.gif" width="500px"/> 
+<p align="center"><img src="https://i.postimg.cc/vZXbPZRC/image-2024-05-24-123924313.png" width="500px"/> 
  
  
   

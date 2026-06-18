@@ -1,4 +1,4 @@
-<p align="center"><img src="https://files.catbox.moe/if1o8q.png" width="500px"/> 
+<p align="center"><img src="https://files.catbox.moe/if1o8q.png" width="600px"/> 
  
  
   
@@ -30,7 +30,7 @@
   
 
 
-<p align="center"><img src="https://files.catbox.moe/6zsux6.png" width="500px"/> 
+<p align="center"><img src="https://files.catbox.moe/6zsux6.png" width="600px"/> 
 
   
        

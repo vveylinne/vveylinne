@@ -1,3 +1,7 @@
+<p align="center">$\color{#FFD6E8}{\textrm{𝐶𝚘𝑛𝚘𝑐𝑒𝑟 𝑙𝑎 𝚘𝚝𝑟𝑎 𝚖𝑖𝚝𝑎𝚍 𝚎𝑠 𝚙𝚘𝑐𝚘 . . .}}$
+<p align="center">$\color{#FFAACF}{\textrm{𝐶𝚘𝑚𝚙𝑟𝚎𝑛𝚍𝚎𝑟 𝚚𝑢𝑒 𝑠𝚘𝑙𝚘 𝚎𝑠𝚝𝑎𝑟, 𝗲𝒔 𝒎𝒂𝒔 𝗽𝒖𝒓𝗼 . . .
+}}$
+
 <p align="center"><img src="https://files.catbox.moe/nov9x5.png" width="650px"/>
 <p align="center">
 <img src="https://files.catbox.moe/xe4dag.gif"/> ㅤㅤ𝒱℮𝑖𝓁𝑦ꪀ℮    <img src="https://64.media.tumblr.com/6af7dcdf3d7ba103615c79d1b05555c1/e959418cd09dc858-81/s75x75_c1/eec16f61221683bc87d59ffb3b77c3c25097bc09.gif"/>    𝘴ℎ℮/𝘩℮𝑟    <img src="https://64.media.tumblr.com/6af7dcdf3d7ba103615c79d1b05555c1/e959418cd09dc858-81/s75x75_c1/eec16f61221683bc87d59ffb3b77c3c25097bc09.gif"/>    ISTP‎ ㅤㅤ<img src="https://files.catbox.moe/xe4dag.gif"/>

@@ -35,7 +35,7 @@
 
 
 
-<p align="center"><img src="https://i.postimg.cc/Pqhjjd6W/IMG_1228.gif" width="500px"/> 
+<p align="center"><img src="https://i.postimg.cc/G3k07mGz/image-2024-05-24-123936098.png" width="500px"/> 
  
  
   
@@ -51,7 +51,7 @@
   
 
 
-<p align="center"><img src="https://komarev.com/ghpvc/?username=arjunsingh27&label=‹𝟹&color=3b3b3b&style=flat" alt="arjunsingh27"/> </p>
+<p align="center"><img src="https://komarev.com/ghpvc/?username=arjunsingh27&label=‹𝟹&color=C0EDEB&style=flat" alt="arjunsingh27"/> </p>
  
   
        
@@ -67,7 +67,7 @@
   
 
 
-<p align="center"><img src="https://i.postimg.cc/HnkRLx5M/IMG_1341.webp" width="500px"/> 
+<p align="center"><img src="https://i.postimg.cc/vZXbPZRC/image-2024-05-24-123924313.png" width="500px"/> 
 
 
   

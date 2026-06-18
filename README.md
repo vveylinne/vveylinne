@@ -1,5 +1,5 @@
-<p align="center">$\color{#FFD6E8}{\textrm{𝐶𝚘𝑛𝚘𝑐𝑒𝑟 𝑙𝑎 𝚘𝚝𝑟𝑎 𝚖𝑖𝚝𝑎𝚍 𝚎𝑠 𝚙𝚘𝑐𝚘 . . .}}$
-<p align="center">$\color{#FFAACF}{\textrm{𝐶𝚘𝑚𝚙𝑟𝚎𝑛𝚍𝚎𝑟 𝚚𝑢𝑒 𝑠𝚘𝑙𝚘 𝚎𝑠𝚝𝑎𝑟, 𝗲𝒔 𝒎𝒂𝒔 𝗽𝒖𝒓𝗼 . . .
+<p align="center"><img src="https://files.catbox.moe/d5wywh.gif"/> $\color{#FFD6E8}{\textrm{ 𝐶𝚘𝑛𝚘𝑐𝑒𝑟 𝑙𝑎 𝚘𝚝𝑟𝑎 𝚖𝑖𝚝𝑎𝚍 𝚎𝑠 𝚙𝚘𝑐𝚘 . . .}}$
+<p align="center"><p align="center"><img src="https://files.catbox.moe/ir19b0.gif"/> $\color{#FFAACF}{\textrm{ 𝐶𝚘𝑚𝚙𝑟𝚎𝑛𝚍𝚎𝑟 𝚚𝑢𝑒 𝑠𝚘𝑙𝚘 𝚎𝑠𝚝𝑎𝑟, 𝗲𝒔 𝒎𝒂𝒔 𝗽𝒖𝒓𝗼 . . .
 }}$
 
 <p align="center"><img src="https://files.catbox.moe/nov9x5.png" width="650px"/>

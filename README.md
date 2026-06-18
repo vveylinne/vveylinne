@@ -1,5 +1,4 @@
 
-
   
   
        
@@ -8,34 +7,7 @@
 
 
 
-  
-  
-       
-  
-
-
-
-
-  
-  
-       
-  
-
-
-
-
-  
-  
-       
-  
-
-
-
-
-
-
-
-<p align="center"><img src="https://i.postimg.cc/G3k07mGz/image-2024-05-24-123936098.png" width="500px"/> 
+<p align="center"><img src="https://files.catbox.moe/if1o8q.png" width="500px"/> 
  
  
   
@@ -53,10 +25,10 @@
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=arjunsingh27&label=‹𝟹&color=C0EDEB&style=flat" alt="arjunsingh27"/> </p>
  
+ 
   
        
   
-
 
 
 <p align="center">
@@ -67,7 +39,7 @@
   
 
 
-<p align="center"><img src="https://i.postimg.cc/vZXbPZRC/image-2024-05-24-123924313.png" width="500px"/> 
+<p align="center"><img src="https://files.catbox.moe/6zsux6.png" width="500px"/> 
 
 
   
